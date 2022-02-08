@@ -1,6 +1,6 @@
 The repo for anything relating to my Shavian steno ('Magpie Theory') project, or other Shavian related things I may work on.
 Currently Magpie Theory is very experimental and prone to large changes.
-If you notice any issues, please contact me on Discord (Ruma#5170) as this is the surest way to reach me.
+If you notice any issues, please contact me on Discord (aimai#5170) as this is the surest way to reach me.
 Alternatively, you can try Twitter (Whersoever), though I don't check it every day.
 
 𐑞 𐑮𐑰𐑐𐑴 𐑓 𐑧𐑯𐑦𐑔𐑦𐑙 𐑮𐑦𐑤𐑱𐑑𐑦𐑙 𐑑 𐑥𐑲 𐑖𐑱𐑝𐑾𐑯 𐑕𐑑𐑧𐑯𐑴 ('𐑥𐑨𐑜𐑐𐑲 𐑔𐑽𐑦') 𐑐𐑮𐑪𐑡𐑧𐑒𐑑, 𐑹 𐑳𐑞𐑼 𐑖𐑱𐑝𐑾𐑯 𐑮𐑦𐑤𐑱𐑑𐑩𐑛 𐑔𐑦𐑙𐑟 𐑲 𐑥𐑱 𐑢𐑻𐑒 𐑪𐑯.
